@@ -1,0 +1,3 @@
+# First time ever
+
+well this is my first entry on my personal blog ...
